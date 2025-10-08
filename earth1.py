@@ -1,7 +1,8 @@
-Earth has 5 moons 
-raju 
-hima
-somu
-tarun
-bony
-
+Earth has many moons 
+rajubhai
+himamol
+somuoolan
+tarunmoorthy
+bonyaya
+zaraheen
+lamody
